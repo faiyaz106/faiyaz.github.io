@@ -1,1 +1,1 @@
-Website Link: https://faiyaz106.github.io/
+Website Link: https://www.faiyazahmad.com
